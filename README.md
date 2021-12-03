@@ -1,0 +1,1 @@
+# Digikala_BlackFriday_1400_Bot
